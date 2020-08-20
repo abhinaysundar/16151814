@@ -278,7 +278,7 @@ will contain my favourite porn Playlist - links
       Lasirena69 Sex after Party - Pornhub.com
     </td>
     <td>
-      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5f0500cbc6cf3">CLick HERE</a>
+      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5f0500cbc6cf3">CLICK HERE</a>
     </td>
   </tr>
   <tr>
