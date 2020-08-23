@@ -145,6 +145,9 @@ will contain my favourite porn Playlist - links
     <td>
       <a href="https://www.pornhub.com/view_video.php?viewkey=ph5d2d32f2adf80">CLICK HERE</a>
     </td>
+   <td>
+      <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
+    </td>
   </tr>
    <tr>
     <td>
@@ -289,6 +292,13 @@ will contain my favourite porn Playlist - links
     <td>
       <a href="https://www.pornhub.com/view_video.php?viewkey=ph5ebaeb5f2668d">CLICK HERE</a>
     </td>
+     <td>
+      <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
+    </td>
+
+   <td>
+      <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
+    </td>
   </tr>
   <tr>
     <td>
@@ -329,6 +339,9 @@ will contain my favourite porn Playlist - links
     <td>
       <a href="https://www.pornhub.com/view_video.php?viewkey=ph5f0500cbc6cf3">CLICK HERE</a>
     </td>
+   <td>
+      <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
+    </td>
   </tr>
 <tr>
     <td>
@@ -336,6 +349,9 @@ will contain my favourite porn Playlist - links
     </td>
     <td>
       <a href="https://www.pornhub.com/view_video.php?viewkey=ph5f106d7509b80">CLICK HERE</a>
+    </td>
+   <td>
+      <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
     </td>
   </tr>
 <tr>
