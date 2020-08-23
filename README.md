@@ -15,6 +15,8 @@ will contain my favourite porn Playlist - links
     <th>
       link
     </th>
+    <th>VPN reqd/not
+    </th>
   </tr>
   <tr>
     <td>
