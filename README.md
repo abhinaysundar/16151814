@@ -115,7 +115,7 @@ will contain my favourite porn Playlist - links
       Sexy milf caught couple pounding on sofa
     </td>
     <td>
-      <a href="https://www.fetishshrine.com/videos/2041578/sexy-milf-caught-couple-pounding-on-sofa/">CLICK HERE</a>
+      <a href="https://www.fetishshrine.com/videos/2041578/sexy-milf-caught-couple-pounding-on-sofa/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
    <tr>
@@ -123,7 +123,7 @@ will contain my favourite porn Playlist - links
       DESI INDIAN PNAJABI NRI WANKING ON AUDITION SOFA
     </td>
     <td>
-      <a href="https://www.porndr.com/videos/40178/desi-indian-pnajabi-nri-wanking-on-audition-sofa/">CLICK HERE</a>
+      <a href="https://www.porndr.com/videos/40178/desi-indian-pnajabi-nri-wanking-on-audition-sofa/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
    <tr>
@@ -131,7 +131,7 @@ will contain my favourite porn Playlist - links
       He fucked his dream girl, Lady D
     </td>
     <td>
-      <a href="https://www.wankoz.com/videos/223697/he-fucked-his-dream-girl-lady-d/">CLICK HERE</a>
+      <a href="https://www.wankoz.com/videos/223697/he-fucked-his-dream-girl-lady-d/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   
@@ -140,7 +140,7 @@ will contain my favourite porn Playlist - links
       FAMILY GUY QUAGMIRE THE STEPSIS CONVERSION
     </td>
     <td>
-      <a href="https://www.pervclips.com/tube/videos/family-guy-quagmire-the-stepsis-conversion/">CLICK HERE</a>
+      <a href="https://www.pervclips.com/tube/videos/family-guy-quagmire-the-stepsis-conversion/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -148,7 +148,7 @@ will contain my favourite porn Playlist - links
       THE LOVELY YOUNG GIRL HAS A VERY HORNY AND WELL-HUNG STEPFATHER
     </td>
     <td>
-      <a href="https://www.hdtube.porn/videos/the-lovely-young-girl-has-a-very-horny-and-well-hung-stepfather/?promo=1076"> CLICK HERE</a>
+      <a href="https://www.hdtube.porn/videos/the-lovely-young-girl-has-a-very-horny-and-well-hung-stepfather/?promo=1076" target="_blank"> CLICK HERE</a>
     </td>
   </tr> 
   <tr>
@@ -156,7 +156,7 @@ will contain my favourite porn Playlist - links
       Nerdy Teen Tess Morgan Gets Busy
     </td>
     <td>
-      <a href="https://www.katestube.com/videos/1996507/nerdy-teen-tess-morgan-gets-busy2/">CLICK HERE</a>
+      <a href="https://www.katestube.com/videos/1996507/nerdy-teen-tess-morgan-gets-busy2/" target="_blank">CLICK HERE</a>
     </td>
    <td>
       <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
@@ -167,7 +167,7 @@ will contain my favourite porn Playlist - links
       THE PERFUMED HONEYMOON
     </td>
     <td>
-      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5d2d32f2adf80">CLICK HERE</a>
+      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5d2d32f2adf80" target="_blank">CLICK HERE</a>
     </td>
    <td>
       <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
@@ -178,7 +178,7 @@ will contain my favourite porn Playlist - links
       NATURALLY BUSTY ASIAN TEEN IS READY FOR HER CREAMPIE
     </td>
     <td>
-      <a href="https://www.pervclips.com/tube/videos/naturally-busty-asian-teen-is-ready-for-her-creampie/">CKICK HERE</a>
+      <a href="https://www.pervclips.com/tube/videos/naturally-busty-asian-teen-is-ready-for-her-creampie/" target="_blank">CKICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -186,7 +186,7 @@ will contain my favourite porn Playlist - links
       Bad fat housewife punished her stepson for bad grades in college
     </td>
     <td>
-      <a href="https://www.joysporn.com/2019/05/02/bad-fat-housewife-punished-her-stepson-for-bad-grades-in-college.html">CLICK HERE</a>
+      <a href="https://www.joysporn.com/2019/05/02/bad-fat-housewife-punished-her-stepson-for-bad-grades-in-college.html" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -194,7 +194,7 @@ will contain my favourite porn Playlist - links
       Babysitter gets oral sex
     </td>
     <td>
-      <a href="https://www.wankoz.com/videos/600568/babysitter-gets-oral-sex2/?utm_source=pbwmed&utm_medium=cpc&utm_campaign=wank">CLICK HERE</a>
+      <a href="https://www.wankoz.com/videos/600568/babysitter-gets-oral-sex2/?utm_source=pbwmed&utm_medium=cpc&utm_campaign=wank" target="_blank">CLICK HERE</a>
     </td>
   </tr>
 
@@ -203,7 +203,7 @@ will contain my favourite porn Playlist - links
       Lucky guy fucks big booty bride and her drunken mother in law
     </td>
     <td>
-      <a href="https://www.joysporn.com/2016/09/09/lucky-guy-fucks-big-booty-bride-and-her-drunken-mother-in-law.html">CLICK HERE</a>
+      <a href="https://www.joysporn.com/2016/09/09/lucky-guy-fucks-big-booty-bride-and-her-drunken-mother-in-law.html" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -211,7 +211,7 @@ will contain my favourite porn Playlist - links
       Classy glamcore babe riding his cock
     </td>
     <td>
-      <a href="https://www.fetishshrine.com/videos/247575/classy-glamcore-babe-riding-his-cock/?utm_source=pbw&utm_medium=cpc&utm_campaign=shrine">CLICK HERE</a>
+      <a href="https://www.fetishshrine.com/videos/247575/classy-glamcore-babe-riding-his-cock/?utm_source=pbw&utm_medium=cpc&utm_campaign=shrine" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -219,7 +219,7 @@ will contain my favourite porn Playlist - links
       Getting the masseuse to follow him home
     </td>
     <td>
-      <a href="https://www.redwap2.com/videos/28726/getting-the-masseuse-to-follow-him-home/">CLICK HERE</a>
+      <a href="https://www.redwap2.com/videos/28726/getting-the-masseuse-to-follow-him-home/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   
@@ -236,7 +236,7 @@ will contain my favourite porn Playlist - links
       BIG TIT COLOMBIAN WOMEN LOVE DICK
     </td>
     <td>
-      <a href="https://www.pervclips.com/tube/videos/big-tit-colombian-women-love-dick/">CLICK HERE</a>
+      <a href="https://www.pervclips.com/tube/videos/big-tit-colombian-women-love-dick/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   
@@ -249,7 +249,7 @@ will contain my favourite porn Playlist - links
       FUCKING HOT BUSTY GIRLFRIEND GETS FILMED DURING HER FIRST TIME ANAL EXPERIENCE 
     </td>
     <td>
-      <a href="https://www.pervclips.com/tube/videos/fucking-hot-busty-girlfriend-gets-filmed-during-her-first-time-anal-experience/">CLICK HERE</a>
+      <a href="https://www.pervclips.com/tube/videos/fucking-hot-busty-girlfriend-gets-filmed-during-her-first-time-anal-experience/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   
@@ -258,7 +258,7 @@ will contain my favourite porn Playlist - links
       Nerdy girl with big jugs has fun with friend's big bulge - HD Porn Tube
     </td>
     <td>
-      <a href="https://www.hdtube.porn/videos/nerdy-girl-with-big-jugs-has-fun-with-friend-s-big-bulge/">CLICK HERE</a>
+      <a href="https://www.hdtube.porn/videos/nerdy-girl-with-big-jugs-has-fun-with-friend-s-big-bulge/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -266,7 +266,7 @@ will contain my favourite porn Playlist - links
       One dude fucks a group of teens
     </td>
     <td>
-      <a href="https://www.vikiporn.com/videos/3230698/one-dude-fucks-a-group-of-teens/">CLICK HERE</a>
+      <a href="https://www.vikiporn.com/videos/3230698/one-dude-fucks-a-group-of-teens/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -274,7 +274,7 @@ will contain my favourite porn Playlist - links
       Lingerie model cocksucking before cumshot
     </td>
     <td>
-      <a href="https://www.wankoz.com/videos/256091/lingerie-model-cocksucking-before-cumshot/?utm_source=pbwmed&utm_medium=cpc&utm_campaign=wank">CLICK HERE</a>
+      <a href="https://www.wankoz.com/videos/256091/lingerie-model-cocksucking-before-cumshot/?utm_source=pbwmed&utm_medium=cpc&utm_campaign=wank" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -282,7 +282,7 @@ will contain my favourite porn Playlist - links
       Glamour model couple afternoon delight
     </td>
     <td>
-      <a href="https://www.fetishshrine.com/videos/92160/glamour-model-couple-afternoon-delight/?utm_source=pbw&utm_medium=cpc&utm_campaign=shrine">CLICK HERE</a>
+      <a href="https://www.fetishshrine.com/videos/92160/glamour-model-couple-afternoon-delight/?utm_source=pbw&utm_medium=cpc&utm_campaign=shrine" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -290,7 +290,7 @@ will contain my favourite porn Playlist - links
       India's having trouble jerking him off tube porn video
     </td>
     <td>
-      <a href ="https://anybunny.tv/movie/24170/indias-having-trouble-jerking-him-off.html">CLICK HERE</a>
+      <a href ="https://anybunny.tv/movie/24170/indias-having-trouble-jerking-him-off.html" target="_blank">CLICK HERE</a>
     </td>
   </tr>
 <tr>
@@ -298,7 +298,7 @@ will contain my favourite porn Playlist - links
       I Have A Wife - Veronica Rodriguez / Xozilla.com
     </td>
     <td>
-      <a href="https://www.xozilla.com/videos/128376/i-have-a-wife-veronica-rodriguez/?aff=10">CLICK HERE</a>
+      <a href="https://www.xozilla.com/videos/128376/i-have-a-wife-veronica-rodriguez/?aff=10" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -306,7 +306,7 @@ will contain my favourite porn Playlist - links
       Brazzersexxtra Bella Rolland And Scarlit Scandal Rough And Raunchy Group Fuck Bad Mom Porn, ilendcat
     </td>
     <td>
-      <a href="https://www.pornflip.com/VAJSyi7q2_F/brazzersexxtra-bella-rolland-and-scarlit-scandal-rough-and-raunchy-group-fuck-bad-mom-porn">CLICK HERE</a>
+      <a href="https://www.pornflip.com/VAJSyi7q2_F/brazzersexxtra-bella-rolland-and-scarlit-scandal-rough-and-raunchy-group-fuck-bad-mom-porn" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -314,7 +314,7 @@ will contain my favourite porn Playlist - links
       BRAZZERS - TWO STRAP ON LESBIANS SHARE a DICK - Pornhub.com
     </td>
     <td>
-      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5ebaeb5f2668d">CLICK HERE</a>
+      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5ebaeb5f2668d" target="_blank">CLICK HERE</a>
     </td>
      <td>
       <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
@@ -325,7 +325,7 @@ will contain my favourite porn Playlist - links
       Aaliyah Hadid, Anya Ivy (Sibling Rivalry 3) sex porno - watch videos online
     </td>
     <td>
-      <a href="https://en.vidmo.org/video.php?id=5119762">CLICK HERE</a>
+      <a href="https://en.vidmo.org/video.php?id=5119762" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -333,7 +333,7 @@ will contain my favourite porn Playlist - links
       🎩 Sister Swap: Part 1 - PornHat
     </td>
     <td>
-      <a href="https://www.pornhat.com/video/17544/sister-swap-part-1/?ad_sub=321">CLICK HERE</a>
+      <a href="https://www.pornhat.com/video/17544/sister-swap-part-1/?ad_sub=321" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -341,7 +341,7 @@ will contain my favourite porn Playlist - links
       Young couple recorded by their friend - Petite tattooed indian teen and boyfriend - Franco Ares
     </td>
     <td>
-      <a href="https://hog.tv/video/20049243_young_duo_recorded_by_their_homie_small_tattooed_indian_teen_and?ad=awn">CLICK HERE</a>
+      <a href="https://hog.tv/video/20049243_young_duo_recorded_by_their_homie_small_tattooed_indian_teen_and?ad=awn" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -349,7 +349,7 @@ will contain my favourite porn Playlist - links
       Teenage Fuckslut is being Porked and Gargled with Messy Facial Cumshot - Eva Elfie - uiPorn.com
     </td>
     <td>
-      <a href="https://www.uiporn.com/videos/teenage-fuckslut-is-being-porked-and-gargled-with-messy-facial-cumshot-eva-elfie-71681/">CLICK HERE</a>
+      <a href="https://www.uiporn.com/videos/teenage-fuckslut-is-being-porked-and-gargled-with-messy-facial-cumshot-eva-elfie-71681/" target="_blank">CLICK HERE</a>
     </td>
   </tr>  
   <tr>
@@ -357,7 +357,7 @@ will contain my favourite porn Playlist - links
       Lasirena69 Sex after Party - Pornhub.com
     </td>
     <td>
-      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5f0500cbc6cf3">CLICK HERE</a>
+      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5f0500cbc6cf3" target="_blank">CLICK HERE</a>
     </td>
    <td>
       <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
@@ -368,7 +368,7 @@ will contain my favourite porn Playlist - links
       Brazzers - Busty Blonde Amber Alena Seduces her Training Instructor - Pornhub.com
     </td>
     <td>
-      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5f106d7509b80">CLICK HERE</a>
+      <a href="https://www.pornhub.com/view_video.php?viewkey=ph5f106d7509b80" target="_blank">CLICK HERE</a>
     </td>
    <td>
       <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
@@ -379,7 +379,7 @@ will contain my favourite porn Playlist - links
       Boyfriend must watch his girlfriend get brutally fisted! - XVIDEOS.COM
     </td>
     <td>
-      <a href="https://www.xvideos.com/video36773165/boyfriend_must_watch_his_girlfriend_get_brutally_fisted_">CLICK HERE</a>
+      <a href="https://www.xvideos.com/video36773165/boyfriend_must_watch_his_girlfriend_get_brutally_fisted_" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -387,8 +387,8 @@ will contain my favourite porn Playlist - links
       Gf is facing full cavity fisting search - XVIDEOS.COM
     </td>
     <td>
-      <a href="https://www.xvideos.com/video48743903/gf_is_facing_full_cavity_fisting_search">CLICK HERE</a><br>
-      <a href="https://www.vikiporn.com/videos/2497378/gf-is-facing-full-cavity-fisting-search-by-a-police-officer/">CLICK HERE</a>
+      <a href="https://www.xvideos.com/video48743903/gf_is_facing_full_cavity_fisting_search" target="_blank">CLICK HERE</a><br>
+      <a href="https://www.vikiporn.com/videos/2497378/gf-is-facing-full-cavity-fisting-search-by-a-police-officer/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
 
@@ -398,7 +398,7 @@ will contain my favourite porn Playlist - links
       SPICY EBONY WITH BIG TITS LUNA CORAZON NAILED BY A LONG WHITE DONG
     </td>
     <td>
-      <a href="https://ok.xxx/video/1974/">CLICK HERE</a>
+      <a href="https://ok.xxx/video/1974/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -406,7 +406,7 @@ will contain my favourite porn Playlist - links
       ZINGY TRAMP VENUS AFRODITA IN SEXY PANTIES FUCKS A BIG TOOL
     </td>
     <td>
-      <a href="https://ok.xxx/video/23476/">CLICK HERE</a>
+      <a href="https://ok.xxx/video/23476/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   
@@ -415,7 +415,7 @@ will contain my favourite porn Playlist - links
       GORGEOUS BIG-BOOBED DOLL WITH TATTOOS VENUS AFRODITA WANTS HIS COCK
     </td>
     <td>
-      <a href="https://ok.xxx/video/6670/">CLICK HERE</a>
+      <a href="https://ok.xxx/video/6670/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
 
@@ -424,7 +424,7 @@ will contain my favourite porn Playlist - links
       A VERY LUCKY IS HAVING SEX WITH ALEXIS MONROE, CALI CARTER AND JESSA RHODES
     </td>
     <td>
-      <a href="https://ok.xxx/video/1428/">CLICK HERE</a>
+      <a href="https://ok.xxx/video/1428/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -432,7 +432,7 @@ will contain my favourite porn Playlist - links
       LUSTY BLACK BABE WITH BIG TITS KIKI MINAJ SCREWED BY A GIANT COCK
     </td>
     <td>
-      <a href="https://ok.xxx/video/3999/">CLICK HERE</a>
+      <a href="https://ok.xxx/video/3999/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
 
