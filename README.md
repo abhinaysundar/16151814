@@ -29,7 +29,7 @@ will contain my favourite porn Playlist - links
     <td>Inexperienced 18 yo Thai teen Min services her first white client
     </td>
     <td>
-      <a href="https://fapality.com/25904/?utm_source=pb">CLICK HERE</a>
+      <a href="https://fapality.com/25904/?utm_source=pb" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   
@@ -37,7 +37,7 @@ will contain my favourite porn Playlist - links
     <td>Soapland adventures in Siam
     </td>
     <td>
-      <a href="https://anybunny.mobi/movie/28740/soapland-adventures-in-siam.html">CLICK HERE</a>
+      <a href="https://anybunny.mobi/movie/28740/soapland-adventures-in-siam.html" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   
