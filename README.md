@@ -45,7 +45,7 @@ will contain my favourite porn Playlist - links
     <td>College girls in lingerie shave each other in the shower on GotPorn (5739251)
     </td>
     <td>
-      <a href="https://www.gotporn.com/college-girls-in-lingerie-shave-each-other-in-the-shower/video-5739251">CLICK HERE</a>
+      <a href="https://www.gotporn.com/college-girls-in-lingerie-shave-each-other-in-the-shower/video-5739251" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   
@@ -54,7 +54,7 @@ will contain my favourite porn Playlist - links
       Showing her stepbrother how sexy she is and how she can make him cum
     </td>
     <td>
-      <a href="https://www.pornwhite.com/videos/2750381/showing-her-stepbrother-how-sexy-she-is-and-how-she-can-make-him-cum/">CLICK HERE</a>
+      <a href="https://www.pornwhite.com/videos/2750381/showing-her-stepbrother-how-sexy-she-is-and-how-she-can-make-him-cum/" target="_blank">CLICK HERE</a>
     </td>
     
   </tr>
@@ -64,7 +64,7 @@ will contain my favourite porn Playlist - links
       Innocent Vienna got a big load on her pretty face after being tag teamed
     </td>
     <td>
-      <a href="https://www.wankoz.com/videos/1493688/innocent-vienna-got-a-big-load-on-her-pretty-face-after-being-tag-teamed/?utm_source=pbwmed&utm_medium=cpc&utm_campaign=wank">CLICK HERE</a>
+      <a href="https://www.wankoz.com/videos/1493688/innocent-vienna-got-a-big-load-on-her-pretty-face-after-being-tag-teamed/?utm_source=pbwmed&utm_medium=cpc&utm_campaign=wank" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
@@ -72,7 +72,7 @@ will contain my favourite porn Playlist - links
       Sexy Librarian Is Horny As Fuck
     </td>
     <td>
-      <a href="https://www.sleazyneasy.com/videos/1419235/sexy-librarian-is-horny-as-fuck/">CLICK HERE</a>
+      <a href="https://www.sleazyneasy.com/videos/1419235/sexy-librarian-is-horny-as-fuck/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   
@@ -81,7 +81,7 @@ will contain my favourite porn Playlist - links
       Brazzers - My stepmom bought me a stripper 
     </td>
     <td>
-      <a href="https://www.xvideos3.com/video23427968/brazzers_-_my_stepmom_bought_me_a_stripper">CLICK HERE</a>
+      <a href="https://www.xvideos3.com/video23427968/brazzers_-_my_stepmom_bought_me_a_stripper" target="_blank">CLICK HERE</a>
     </td>
   </tr>
    <tr>
@@ -89,14 +89,14 @@ will contain my favourite porn Playlist - links
       DISTURBANCE FROM A TEEN PARTY NEXTDOOR LEADS TO A THREESOME
     </td>
     <td>
-      <a href="https://www.pervclips.com/tube/videos/disturbance-from-a-teen-party-nextdoor-leads-to-a-threesome/">CLICK HERE</a>
+      <a href="https://www.pervclips.com/tube/videos/disturbance-from-a-teen-party-nextdoor-leads-to-a-threesome/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
     <td>chennai malayali young girl hot sex full video w
     </td>
     <td>
-      <a href="https://www.pornoxo.com/videos/2298797/chennai-malayali-young-girl-hot-sex-full-video-with-bf/?utm_source=awn&utm_medium=tgp&utm_campaign=cpc">CLICK HERE</a>
+      <a href="https://www.pornoxo.com/videos/2298797/chennai-malayali-young-girl-hot-sex-full-video-with-bf/?utm_source=awn&utm_medium=tgp&utm_campaign=cpc" target="_blank">CLICK HERE</a>
     </td>
    <td>
       <img src="https://www.freepnglogos.com/uploads/tick-png/image-tick-mark-icon-png-good-luck-charlie-wiki-2.png" height='30'>
@@ -107,7 +107,7 @@ will contain my favourite porn Playlist - links
       Milf wears strapon to fuck teen in this threeway session
     </td>
     <td>
-      <a href="https://www.fetishshrine.com/videos/232868/milf-wears-strapon-to-fuck-teen-in-this-threeway-session/">CLICK HERE</a>
+      <a href="https://www.fetishshrine.com/videos/232868/milf-wears-strapon-to-fuck-teen-in-this-threeway-session/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   <tr>
