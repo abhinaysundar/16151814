@@ -1,7 +1,4 @@
 <html>
-  <head><title>
-    my favourite porn links
-    </title></head>
 <body>
   <h1>Hello</h1><br>
   
