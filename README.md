@@ -17,7 +17,6 @@ will contain my favourite porn Playlist - links
     <th>
       s.no.
     </th>
-    
     <th>
       title
     </th>
