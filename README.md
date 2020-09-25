@@ -554,9 +554,9 @@ will contain my favourite porn Playlist - links
   
 <tr>
   <td></td>
-    <td>🐇 Two gorgeous hotties Ava Addams and Gianna Dior are getting fucked - OK.XXX
+    <td>Ava Addams And Gianna Dior - Moms In Control
     </td>
-    <td><a href="https://ok.xxx/video/9501/">CLICK HERE</a>
+    <td><a href="https://smutr.com/v/73583/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
 
