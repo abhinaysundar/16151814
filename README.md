@@ -562,15 +562,22 @@ will contain my favourite porn Playlist - links
   <tr><td></td>
     <td>Indian teacher fucks with student 
     </td>
-    <td><a href="https://xhamster5.desi/videos/indian-teacher-fucks-with-student-xh1Wilv">CLICK HERE</a>
+    <td><a href="https://xhamster5.desi/videos/indian-teacher-fucks-with-student-xh1Wilv" target="_blank">CLICK HERE</a>
     </td>
   </tr>
+  <tr><td></td>
+    <td>Indian college teacher fucked by student before exams
+    </td>
+    <td><a href="https://www.xnxx.es/video-hqmeze0/indian_college_teacher_fucked_by_student_before_exams" target="_blank">CLICK HERE</a>
+    </td>
+  </tr>
+  </table>
 
 ----
 <tr><td></td>
     <td>
     </td>
-    <td>
+    <td><a href="" target="_blank">CLICK HERE</a>
     </td>
   </tr>
   </table>
